@@ -1,1 +1,1 @@
-#antes do clone
+morra imediatamente
